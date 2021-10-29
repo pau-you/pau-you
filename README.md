@@ -27,7 +27,7 @@ Here are some ideas to get you started:
 - ❓ Ask me about anything related to machine learning and BI tools  
   
 
-- ⚡ Fun fact: I love embroidery and painting (in one canvas!)   
+- ⚡ Fun fact: I love embroidering and painting (in one canvas!)   
   
 
 <br/>  
